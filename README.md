@@ -1,0 +1,1 @@
+# Skymey-stock-polygon-tickerdetails
